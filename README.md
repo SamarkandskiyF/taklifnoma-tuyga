@@ -1,0 +1,2 @@
+# taklifnoma-tuyga
+oybekni tuyi
